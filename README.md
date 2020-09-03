@@ -1,1 +1,1 @@
-Me gusta este taller
+No me gusta este taller
